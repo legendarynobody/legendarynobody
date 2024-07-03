@@ -1,4 +1,4 @@
-<img src="" width="600">
+<img src="Pratham_Goyal-transformed.png" width="600">
 
 Prolific multidisciplinary inventor & learner, dynamic scientific researcher.
 Learning from First Principles & whole truth and basics.
